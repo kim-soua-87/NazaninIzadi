@@ -1,2 +1,2 @@
-# NazaninIzadi
-“Exploring the beauty of the night sky, zodiac energies, and tarot wisdom. A space where magic meets the universe.”
+“Marjulika — I am the moon in the shadow, the fire in stillness, the timeless spark within. Explore the cosmos, zodiac signs, tarot insights, and the mysteries of the universe.”
+
